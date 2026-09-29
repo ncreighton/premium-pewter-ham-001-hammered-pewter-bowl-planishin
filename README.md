@@ -1,0 +1,2 @@
+# premium-pewter-ham-001-hammered-pewter-bowl-planishin
+Tired of losing track of your best planishing sequences for that perfect hammered pewter bowl? Stop guessing and start documenting every strike with a system built for your craft.  The Hammered Pewter Bowl Planishing Sequence Log is the first Notion template designed specifically for pewter artisans to meticulously record each planishing pass. No m
